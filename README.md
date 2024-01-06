@@ -1,4 +1,4 @@
-- 👋 Hi, soy @lKak0l, me gusta comer galletas tostarrica y dinosaurius. Soy adicto a los porros y no me gusta mucho el chocolate (de comer). Tampoco me gusta ver el tenis ni el padel.
+- 👋 Hi, soy @lKak0l, me gusta comer galletas tostarrica con n0cilla. Soy adicto a la k0kak0la y me gusta mucho el chocolate.
 - 👀 Estoy interesado en la naturaleza!
 - 🌱 Estudio el HACK (tal cual no digo más)
 - 💞️ I’m looking to collaborate on MY CYBERFRIENDS
