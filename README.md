@@ -4,7 +4,8 @@
 - 👀 Ver oír y callar...
 - 🌱 plant seeds ...
 - 💞️ I’m looking to collaborate on MY CYBERFRIENDS
-- 📫 How to reach me ... telegram > @lKak0l
+- 📫 How to reach me ... telegram
 
+ 🌍 t.me/+4ohelnaYWVtiMWM8 
 
 
